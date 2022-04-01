@@ -1,4 +1,4 @@
-### Hi there 👋
+
 
 ![Cover](https://github.com/divadparad/divadparad/blob/main/img/2021_09_27.png)
 
